@@ -1,0 +1,1 @@
+# res-str-001-geographic-information-system-gis-tutorial-january-iap-_099f40315ba5415ba80a686bb5ba87ce
